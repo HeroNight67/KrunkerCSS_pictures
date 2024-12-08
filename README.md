@@ -6,7 +6,7 @@ Every picture that you will see on this repo are only meant to show you what my 
 
 Since the CSS is a krunker related product, I can only sell it for krunker related product that can be Krunkies or Krunker Items. The rules are set by this page : https://frvr.com/legal/krunker/
 
-I sell my 100% customized Krunker CSS Black and White CSS with a sober design for the price of either krunkies or Items:
+I sell my 100% customized Krunker CSS Black and White with a sober design for the price of either krunkies or Items:
 - 35 000 kr gifted to IGN: HeroNight
 - 40 000 kr worth of Items to IGN: HeroNight
 
