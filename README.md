@@ -7,7 +7,6 @@ Since the CSS is a krunker related product, I can only sell it for a krunker rel
 
 📌📌 Notice : I'm also willing to add morecustomization on personal preference, for example: bigger/smaller leaderboard, Custom Icon on leaderboard, replaced name leaderboard, class on main menu, etc.
 
-🎉 CHRISTMAS SALES 🎉 -80% ONLY 2 days, ending wednesday 25 december !
 I sell my 100% customized Krunker CSS Black and White with a sober design for the price of either krunkies or Items:
 - 6 363 kr gifted to IGN: HeroNight (7000kr total fees included)
 - 8 000 kr worth of Items to IGN: HeroNight
